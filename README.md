@@ -1,3 +1,1 @@
-# polish_cow
-website with polish cow
-# enjoy!!
+# ИГРАЮ ФРИ ФАЕР Я КРУТОЙ Я ЗНАЮ
